@@ -138,3 +138,5 @@ microsoft.com/university <http://www.microsoft.com/university>
 
 ![image004](https://github.com/ArkS0001/Microsoft-Campus-Connect-2024/assets/113760964/ab5872df-f8ae-4a9c-8bcb-f64b161d04c1)
 ![image001](https://github.com/ArkS0001/Microsoft-Campus-Connect-2024/assets/113760964/d7adef72-dd5a-417f-94d1-a01b0c98fc94)
+
+[Copilot](https://copilot.microsoft.com/images/create/a-story-about-a-brave-knight-and-a-magical-dragon/1-6656d3669b5a41f29f495677d5b2e80e?id=3%2feSLlR9Pw4g%2f8Ro96J4Mg%3d%3d&view=detailv2&idpp=genimg&idpclose=1&thId=OIG1.Oj4jG53H.lvAnWG93xEw&lng=en-US&ineditshare=1)
