@@ -1,5 +1,5 @@
 # Microsoft Campus Connect 2024
-# [Vartika Dixit](https://www.linkedin.com/in/vartikadixit/)   ,   [Blossom Pinto](https://www.linkedin.com/in/blossompinto/)  , [Lakshmi Stoltz](https://www.linkedin.com/in/lakshmi-stoltz/)
+# [Vartika Dixit](https://www.linkedin.com/in/vartikadixit/)   ,   [Blossom Pinto](https://www.linkedin.com/in/blossompinto/)  , [Lakshmi Stoltz](https://www.linkedin.com/in/lakshmi-stoltz/)  , [Manish Gupta](https://www.linkedin.com/in/manishsgupta/)
 Aakarshit Srivastava &lt;shubh26002@gmail.com> Fwd: Microsoft - Campus Connect 2024 Agenda RevealeEmbark on a 4-day virtual journey unveiling life at Microsoft - Dive deep into cutting-edge technology insights, immerse yourself in our vibrant culture, and forge connections with experts over interactive sessions.
 ![image002](https://github.com/ArkS0001/Microsoft-Campus-Connect-2024/assets/113760964/e9f9238c-1247-4680-a8df-d0a5ffafc5b9)
 ![image005](https://github.com/ArkS0001/Microsoft-Campus-Connect-2024/assets/113760964/0ed18591-59d6-40c8-bcc5-d71c0d29c1e7)
